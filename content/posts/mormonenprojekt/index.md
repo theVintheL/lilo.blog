@@ -50,6 +50,8 @@ Simon Erklärt, ein Stereotyp, das oft mit den Mormonen verbunden wird, ist dass
 
  
 
+![]()
+
 ### “Wir sind die einzige mormonische Kirche in der Schweiz” 
 
 Er erklärt ausführlich, dass ihre Gemeinde die einzige mormonische Kirche in der Schweiz ist, was bedeutet, dass sie eine besondere Verantwortung haben, sicherzustellen, dass alle Mormonen die Möglichkeit haben, an den Gottesdiensten teilzunehmen. Um dies zu gewährleisten, bieten sie Unterkünfte direkt neben der Kirche an, die kostenfrei sind. Diese Unterkünfte sind besonders für diejenigen gedacht, die eine weite Anreise haben, damit sie nicht bereits um 4 Uhr morgens losfahren müssen. Aufgrund der Vielzahl von Menschen, die aus dem Ausland kommen, sei es aufgrund von Versetzungen oder aus anderen Gründen, organisieren sie regelmässig verschiedene Events, um die Gemeinschaft zu stärken. Herr Abplanalp überreicht uns einen Flyer für ein internationales Essen, zu dem wir herzlich eingeladen wurden. Dabei handelt es sich um eine Gelegenheit, mit Menschen aus den USA, Mexiko, Kuba und anderen Ländern in Kontakt zu treten und kulturelle Vielfalt zu erleben. 
