@@ -10,11 +10,7 @@ image = "e52b9839-55ad-4288-925b-a1f372bc38ac.jpg"
 Eine Reportage von Davina, Kimi und Owen. 
 
 {{<box>}}**Der Gründer der Mormonen**\
-Am 23. Dezember 1805 erblickte in Sharon/Vermont der Amerikaner Joseph Smith das Licht der Welt. Er war das vierte von neun Kindern des Ehepaares Lucy (geb. Mack) und Joseph Smith sen. Während eines Gebetes in einem Wäldchen am Rande seines Wohnortes Manchester/N.Y. seien ihm in einer Vision »Gott der Vater« und »Jesus Christus« erschienen. »Gott« habe ihm geraten, sich keiner der bestehenden Kirchen anzuschließen, da sie sich alle im Irrtum« befänden und ihre Bekenntnisse »ein Greuel in seinen Augen« seien.{{</box>}}
-
- habe Joseph Smith als Jugendlicher durch eine Reihe von Visionen von Jesus, Gott und einem Engel Offenbarung und dadurch Zugriff auf die goldene Bibel erhalten, woraufhin er 1830 mit dieser Quelle das Buch „Mormon“ verfasst habe. Er gewann eine grosse Menge an Anhängern bis er 1840 aufgrund seiner Ermordung seine Position als Präsident der Kirche verlor. Wer die Positions des Nachfolgers bekam, bleibt bis heute umstritten. 
-
-
+Am 23. Dezember 1805 erblickte in Sharon/Vermont der Amerikaner Joseph Smith das Licht der Welt. Er war das vierte von neun Kindern des Ehepaares Lucy (geb. Mack) und Joseph Smith sen. Während eines Gebetes in einem Wäldchen am Rande seines Wohnortes Manchester/N.Y. seien ihm in einer Vision »Gott der Vater«, einem Engel und »Jesus Christus« erschienen. »Gott« habe ihm geraten, sich keiner der bestehenden Kirchen anzuschließen, da sie sich alle im Irrtum« befänden und ihre Bekenntnisse »ein Greuel in seinen Augen« seien. Er hat dadurch die goldene Bibel erhalten, 1830 hat er mit dieser Quelle das Buch Mormon verfasst. {{</box>}}
 
 
 
