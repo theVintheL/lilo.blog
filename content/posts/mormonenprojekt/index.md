@@ -9,8 +9,10 @@ image = "e52b9839-55ad-4288-925b-a1f372bc38ac.jpg"
 
 Eine Reportage von Davina, Kimi und Owen. 
 
-{{<box>}}**Der Gründer der Mormonen**\
-Am 23. Dezember 1805 erblickte in Sharon/Vermont der Amerikaner Joseph Smith das Licht der Welt. Er war das vierte von neun Kindern des Ehepaares Lucy (geb. Mack) und Joseph Smith sen. Während eines Gebetes in einem Wäldchen am Rande seines Wohnortes Manchester/N.Y. seien ihm in einer Vision »Gott der Vater«, einem Engel und »Jesus Christus« erschienen. »Gott« habe ihm geraten, sich keiner der bestehenden Kirchen anzuschließen, da sie sich alle im Irrtum« befänden und ihre Bekenntnisse »ein Greuel in seinen Augen« seien. Er hat dadurch die goldene Bibel erhalten, 1830 hat er mit dieser Quelle das Buch Mormon verfasst. {{</box>}}
+
+
+{{<box title="Geschichte Mormonen">}} {{<box>}}**Der Gründer der Mormonen**\
+Am 23. Dezember 1805 erblickte in Sharon/Vermont der Amerikaner Joseph Smith das Licht der Welt. Er war das vierte von neun Kindern des Ehepaares Lucy (geb. Mack) und Joseph Smith sen. Während eines Gebetes in einem Wäldchen am Rande seines Wohnortes Manchester/N.Y. seien ihm in einer Vision »Gott der Vater«, einem Engel und »Jesus Christus« erschienen. »Gott« habe ihm geraten, sich keiner der bestehenden Kirchen anzuschließen, da sie sich alle im Irrtum« befänden und ihre Bekenntnisse »ein Greuel in seinen Augen« seien. Er hat dadurch die goldene Bibel erhalten, 1830 hat er mit dieser Quelle das Buch Mormon verfasst. {{</box>}} {{</box>}}
 
 {{<youtube [](studyflix.de)https://studyflix.de/allgemeinwissen/mormonen-6170)>}}
 
@@ -68,4 +70,4 @@ Die Mormonen glauben an die Bibel wie alle anderen Christen. Was sie aber unters
 
 In einem zweiten Interview mit Angela Büchel **Sladkovic, Dr. theol.**, die Mitglied der Kirche im Haus der Religionen Bern ist, wurde uns Information über die Mormonen im Zusammenhang mit der christlichen Gemeinschaft preisgegeben. Sie erklärt, dass es von den in der Ökumene verbundenen Kirchen weltweit keine gebe, die die Kirche Jesu Christi HLT als christliche Kirche anerkennt. Sie fügt zu, dass dies jedoch keine Zusammenarbeit zwischen ihnen und den Mormonen ausschliesse und, dass diese Zusammenarbeit im interreligiösen Feld stattfinde. 
 
-![](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
+![Quelle: Intcreator (own work)](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
