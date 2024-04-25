@@ -18,11 +18,15 @@ An einem Dienstagmorgen entfaltet sich ein eher ungewöhnliches Spektakel. Haars
 
 Ein steinerner Pfad führt in das gewöhnlich aussehende Gemeindehaus. Darin befindet sich eine Sonntagschule. An allen Wänden hängen Porträts des heiligen Jesus Christus, in denen er an verschiedenen biblischen Ereignissen teilnimmt. Jedoch ist die Stimmung auf keinen Fall düster oder unfreundlich. Dies scheint im Büro des Bischofs noch mehr der Fall zu sein.  
 
-{{<box>}}
+
+
+{{<box title="Ausklappbare Box">}}
 
 ![Bischoff der Kirche](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg "Simon Abplanalp")
 
- {{</box>}}
+`{{</box>}}`
+
+
 
 Zu sehen sind ein Regal gefüllt mit Bibeln, eine griechische Vase und ein modernes Kunstwerk in der rechten Hälfte des Zimmers. 
 
@@ -74,4 +78,8 @@ Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass s
 
 Die Mormonen glauben an die Bibel wie alle anderen Christen. Was sie aber unterscheidet ist, dass für sie nicht nur Jesus ein Mensch ist der Gott ist, sondern auch der Vater (Gott im Christentum) einmal Mensch gewesen ist. Was sie auch noch unterscheidet, ist, dass sie einen weiteren Propheten, Joseph Smith, in der Bibel haben. Ausserdem glauben Mormonen auch, dass jeder Mensch theoretisch durch Erleuchtung „göttlich“ werden können. Das kann auch dazu beitragen, dass sie in höheren Mitgliedern Aposteln oder sogar Propheten sehen können. 
 
-In einem zweiten Interview mit Angela Büchel **Sladkovic, Dr. theol.**, die Mitglied der Kirche im Haus der Religionen Bern ist, wurde uns Information über die Mormonen im Zusammenhang mit der christlichen Gemeinschaft preisgegeben. Sie erklärt, dass es von den in der Ökumene verbundenen Kirchen weltweit keine gebe, die die Kirche Jesu Christi HLT als christliche Kirche anerkennt. Sie fügt zu, dass dies jedoch keine Zusammenarbeit zwischen ihnen und den Mormonen ausschliesse und, dass diese Zusammenarbeit im interreligiösen Feld stattfinde.
+In einem zweiten Interview mit Angela Büchel **Sladkovic, Dr. theol.**, die Mitglied der Kirche im Haus der Religionen Bern ist, wurde uns Information über die Mormonen im Zusammenhang mit der christlichen Gemeinschaft preisgegeben. Sie erklärt, dass es von den in der Ökumene verbundenen Kirchen weltweit keine gebe, die die Kirche Jesu Christi HLT als christliche Kirche anerkennt. Sie fügt zu, dass dies jedoch keine Zusammenarbeit zwischen ihnen und den Mormonen ausschliesse und, dass diese Zusammenarbeit im interreligiösen Feld stattfinde. 
+
+ 
+
+![](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
