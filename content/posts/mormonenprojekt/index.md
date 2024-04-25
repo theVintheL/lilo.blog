@@ -12,11 +12,17 @@ Eine Reportage von Davina, Kimi und Owen. 
 {{<box>}}**Der Gründer der Mormonen**\
 Am 23. Dezember 1805 erblickte in Sharon/Vermont der Amerikaner Joseph Smith das Licht der Welt. Er war das vierte von neun Kindern des Ehepaares Lucy (geb. Mack) und Joseph Smith sen. Während eines Gebetes in einem Wäldchen am Rande seines Wohnortes Manchester/N.Y. seien ihm in einer Vision »Gott der Vater« und »Jesus Christus« erschienen. »Gott« habe ihm geraten, sich keiner der bestehenden Kirchen anzuschließen, da sie sich alle im Irrtum« befänden und ihre Bekenntnisse »ein Greuel in seinen Augen« seien.{{</box>}}
 
+ habe Joseph Smith als Jugendlicher durch eine Reihe von Visionen von Jesus, Gott und einem Engel Offenbarung und dadurch Zugriff auf die goldene Bibel erhalten, woraufhin er 1830 mit dieser Quelle das Buch „Mormon“ verfasst habe. Er gewann eine grosse Menge an Anhängern bis er 1840 aufgrund seiner Ermordung seine Position als Präsident der Kirche verlor. Wer die Positions des Nachfolgers bekam, bleibt bis heute umstritten. 
+
+
+
+
+
 An einem Dienstagmorgen entfaltet sich ein eher ungewöhnliches Spektakel. Haarscharf geschnittenes Gras wächst hier auf grossen Wiesen. Die Halme sind noch mit Tau vom kühlen letzten Abend bedeckt. Symmetrische Blumenbeete bringen Farbe in die ansonsten eintönige Umgebung. Grosse Bäume bewachen den Eingang vom Tempelplatz. Im Zentrum steht der Hauptanblick: Der Tempel der Kirche Jesu Christi der Heiligen der letzten Tage. In Essenz ein grosses graues Gebäude mit einer goldenen Figur auf dem Haupte. Versucht man in den Tempel zu gehen, so wird man von Französisch sprechenden Kirchmitgliedern angehalten, alle teuer gekleidet in weissen Anzügen und Trachten. Unreine dürfen nämlich nicht das Innere des grossen Tempels betrachten, es ist verboten. 
 
 Ein steinerner Pfad führt in das gewöhnlich aussehende Gemeindehaus. Darin befindet sich eine Sonntagschule. An allen Wänden hängen Porträts des heiligen Jesus Christus, in denen er an verschiedenen biblischen Ereignissen teilnimmt. Jedoch ist die Stimmung auf keinen Fall düster oder unfreundlich. Dies scheint im Büro des Bischofs noch mehr der Fall zu sein.  
 
-![](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg)
+![Bischoff der Kirche](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg "Simon Abplanalp")
 
 Zu sehen sind ein Regal gefüllt mit Bibeln, eine griechische Vase und ein modernes Kunstwerk in der rechten Hälfte des Zimmers. 
 
