@@ -36,7 +36,7 @@ Simon erläutert, es gibt mehrere Gründe dafür. Als Bischof hat man auch die V
 
 Aber was denn soll “würdig” genau heissen? Im Mormonentum gibt es viele Regeln, die befolgt werden müssen, damit man als ‘rein’ gilt. Zum einen gibt es gewöhnliche Regeln wie die Taufe. Jedoch gibt es auch besondere Regeln, zum Beispiel sind der Konsum von Kaffee oder Tee verboten, genau wie Alkohol auch. Es scheint kein Tabu zu sein, wenn jemand beim Konsum dieser Substanzen erwischt wird. Jedoch kann dies je nach Person variieren. Jedes muss eigentlich selbst wissen, was für es richtig ist. Sie glauben daran, dass jeder die Möglichkeit hat, auch persönliche Offenbarung vom himmlischen Partner zu bekommen und die kann man selbst finden. Der Glauben ist ausschliesslich, dass zum Beispiel Tee eine Substanz ist, die abhängig oder süchtig macht. Wenn Mormonen aber abhängig sind, sei es von Alkohol, sei es Tabak, aber auch eben Kaffee, dann besteht stark der Glauben, sie hätten ihre Freiheit verloren. Jeder trifft seine eigenen Entscheidungen. Es wird aber zum Beispiel nicht am Sonntag kontrolliert, wer jetzt genau nach Tabakrauch riecht. Grundsätzlich geht es um die Entscheidungsfreiheit, damit die Kontrolle über den eigenen Körper besteht, ist es besser, nicht abhängig zu sein.  
 
-![](251a106d-2008-4c42-baea-720a204f76bc.jpg)
+![ Die Wanne für die Taufe](251a106d-2008-4c42-baea-720a204f76bc.jpg)
 
 ### „Denken Sie, es gebe heutzutage noch Propheten und dadurch die Chance der Entstehung eines dritten Testaments?“ 
 
@@ -50,9 +50,9 @@ Simon Erklärt, ein Stereotyp, das oft mit den Mormonen verbunden wird, ist dass
 
 ![](bf238bc2-3653-43f4-ab44-405bc8396c4a.jpg)
 
-“Wir sind die einzige mormonische Kirche in der Schweiz” 
-
-*Simon Abplanalp*
+> “Wir sind die einzige mormonische Kirche in der Schweiz” 
+>
+> *Simon Abplanalp*
 
 Ausführlich erklärt er, dass ihre Gemeinde die einzige mormonische Kirche in der Schweiz ist, was bedeutet, dass sie eine besondere Verantwortung haben, sicherzustellen, dass alle Mormonen die Möglichkeit haben, an den Gottesdiensten teilzunehmen. Um dies zu gewährleisten, bieten sie Unterkünfte direkt neben der Kirche an, die kostenfrei sind. Diese Unterkünfte sind besonders für diejenigen gedacht, die eine weite Anreise haben, damit sie nicht bereits um 4 Uhr morgens losfahren müssen. Aufgrund der Vielzahl von Menschen, die aus dem Ausland kommen, sei es aufgrund von Versetzungen oder aus anderen Gründen, organisieren sie regelmässig verschiedene Events, um die Gemeinschaft zu stärken. Herr Abplanalp überreicht uns einen Flyer für ein internationales Essen, zu dem wir herzlich eingeladen wurden. Dabei handelt es sich um eine Gelegenheit, mit Menschen aus den USA, Mexiko, Kuba und anderen Ländern in Kontakt zu treten und kulturelle Vielfalt zu erleben. 
 
