@@ -20,7 +20,7 @@ Ein steinerner Pfad führt in das gewöhnlich aussehende Gemeindehaus. Darin bef
 
 {{<box title="Simon Abplanalp">}}
 
-![Bischoff der Kirche](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg "Simon Abplanalp")
+![Bischof der Kirche](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg "Simon Abplanalp")
 
 `{{</box>}}`
 
