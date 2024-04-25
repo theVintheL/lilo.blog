@@ -60,7 +60,7 @@ Europäische Immigranten in den USA wollten sich der Kirche anschliessen, jedoch
 
 ![](bf238bc2-3653-43f4-ab44-405bc8396c4a.jpg)
 
-### “Es gibt ein Leben nach dem Tod, wo wir zurück zum himmlischen Vater kommen.” 
+### Das Leben nach dem Tod, zum himmlischen Vater
 
 Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass seine Kirche als “Kirche Jesu Christi der Heiligen der letzten Tage” (die Kirche, in der er seine Profession betreibt) bezeichnet werden solle.  Der Übername “Mormonen” kommt von dem Prophet Mormon, einem von den Autoren des Buches Mormon war. Das Buch Mormon ist im Mormonentum ein weiterer Zeuge für Jesus Christus. Abgeleitet von dem bekamen die Glaubenden diesen Spitznamen. Anschliessend gibt er Preis, dass sie 13 Glaubensartikel haben. Im Kern ihres Glaubens seien Jesus Christus zusammen mit seiner Auferstehung, seinem Sündopfer und dem Fakt, dass es ein Leben nach dem Tod gebe, wo sie zurück zu Jesus und ihrem himmlischen Vater gehen.
 
