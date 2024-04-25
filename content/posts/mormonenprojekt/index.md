@@ -26,6 +26,9 @@ Der 34-jährige **Simon Abplanalp**, der nicht nur Mitglied dieser Gemeinde, son
 
 {{</box>}}
 
+ {{<box>}}**Der Gründer der Mormonen**\
+Am 23. Dezember 1805 erblickte in Sharon/Vermont der Amerikaner Joseph Smith das Licht der Welt. Er war das vierte von neun Kindern des Ehepaares Lucy (geb. Mack) und Joseph Smith sen. Während eines Gebetes in einem Wäldchen am Rande seines Wohnortes Manchester/N.Y. seien ihm in einer Vision »Gott der Vater«, einem Engel und »Jesus Christus« erschienen. »Gott« habe ihm geraten, sich keiner der bestehenden Kirchen anzuschließen, da sie sich alle im Irrtum« befänden und ihre Bekenntnisse »ein Greuel in seinen Augen« seien. Er hat dadurch die goldene Bibel erhalten, 1830 hat er mit dieser Quelle das Buch Mormon verfasst. {{</box>}}
+
 ### Der Weg zum Bishof
 
 Bischöfe in der Kirche Jesu Christi der Heiligen der letzten Tage müssen nicht Jahre lang der Kirche gedient haben, um ihre Position zu erhalten. Die einzigen Voraussetzungen sind, dass die Person verheiratet ist, Arbeit hat und sich bemüht, ein würdiges Leben zu führen. <!--StartFragment-->
