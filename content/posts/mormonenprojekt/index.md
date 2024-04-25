@@ -21,7 +21,7 @@ Zu sehen sind ein Regal gefüllt mit Bibeln, eine griechische Vase und ein moder
 
 Der große Schreibtisch bietet genug Platz für eine Diskussion. 
 
-Der 34-jährige Simon Abplanalp, der nicht nur Mitglied dieser Gemeinde, sondern auch ihr Bischof ist, leitet den Besuch. Er ist Vater von zwei kleinen Kindern, 6 und 8 Jahre alt, hat einem festen Platz in der Gemeinde und ist ein angesehener Mann.  
+Der 34-jährige **Simon Abplanalp**, der nicht nur Mitglied dieser Gemeinde, sondern auch ihr Bischof ist, leitet den Besuch. Er ist Vater von zwei kleinen Kindern, 6 und 8 Jahre alt, hat einem festen Platz in der Gemeinde und ist ein angesehener Mann.  
 {{<box title="Simon Abplanalp">}}
 
 ![Bischof der Kirche](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg "Simon Abplanalp")
