@@ -17,9 +17,7 @@ An einem Dienstagmorgen entfaltet sich ein eher ungewöhnliches Spektakel. Haars
 ![Vorgarten des mormonen Tempel](16febbcd-dfc1-456b-b8df-e2627eb6551d.jpg)
 
 Ein steinerner Pfad führt in das gewöhnlich aussehende Gemeindehaus. Darin befindet sich eine Sonntagschule. An allen Wänden hängen Porträts des heiligen Jesus Christus, in denen er an verschiedenen biblischen Ereignissen teilnimmt. Jedoch ist die Stimmung auf keinen Fall düster oder unfreundlich. Dies scheint im Büro des Bischofs noch mehr der Fall zu sein.  
-Zu sehen sind ein Regal gefüllt mit Bibeln, eine griechische Vase und ein modernes Kunstwerk in der rechten Hälfte des Zimmers. 
-
-Der große Schreibtisch bietet genug Platz für eine Diskussion. 
+Zu sehen sind ein Regal gefüllt mit Bibeln, eine griechische Vase und ein modernes Kunstwerk in der rechten Hälfte des Zimmers. Der große Schreibtisch bietet genug Platz für eine Diskussion. 
 
 Der 34-jährige **Simon Abplanalp**, der nicht nur Mitglied dieser Gemeinde, sondern auch ihr Bischof ist, leitet den Besuch. Er ist Vater von zwei kleinen Kindern, 6 und 8 Jahre alt, hat einem festen Platz in der Gemeinde und ist ein angesehener Mann.  
 {{<box title="Simon Abplanalp">}}
@@ -48,13 +46,13 @@ Joseph Smith war sowohl der Gründer des Mormonentums, des Latter Day Saint Move
 
 Simon Erklärt, ein Stereotyp, das oft mit den Mormonen verbunden wird, ist dass Frauen eine tiefere Stelle als Männer haben, (was jedoch nicht stimmt) da früher männliche Mormonen in den USA mehrere Frauen haben durften. Sie hatten andere Aufgaben, seien aber gleichwertig. Das Stereotyp entstand, als in früheren Jahren Mormonen in den USA oftmals Polygamie betrieben, wobei ein Mann mehrere Frauen haben konnte. Die Polygamie hatte aber auch einen spezifischen Grund. Europäische Immigranten in den USA wollten sich der Kirche anschliessen, jedoch war die Kirche auf der Flucht, da sie verteufelt wurde und sie nirgends willkommen waren. Die Leute dachten, der Prophet Joseph Smith selbst, sei verrückt. Auf der Flucht durch die amerikanische Prärie oft angegriffen von Banditen, verhungert oder verdurstet etc. sind viele von ihnen gestorben. Am Schluss sind sie im Salzseetal, wo jetzt Salt Lake City ist, angekommen. Es gab viele Frauen, die keinen Mann mehr hatten, da er auf der Reise starb.  Es wurde also so organisiert, damit die Frauen nicht allein waren, dass sie zu einer Familie gehörten, deswegen haben bereits verheiratete Männer geheiratet. Heutzutage ist die Polygamie in den Vereinigten Staaten verboten, weswegen die meisten Mormonen weltweit diese Praxis nicht mehr betreiben. 
 
-![](bf238bc2-3653-43f4-ab44-405bc8396c4a.jpg)
-
 > “Wir sind die einzige mormonische Kirche in der Schweiz” 
 >
 > *\-Simon Abplanalp*
 
 Ausführlich erklärt er, dass ihre Gemeinde die einzige mormonische Kirche in der Schweiz ist, was bedeutet, dass sie eine besondere Verantwortung haben, sicherzustellen, dass alle Mormonen die Möglichkeit haben, an den Gottesdiensten teilzunehmen. Um dies zu gewährleisten, bieten sie Unterkünfte direkt neben der Kirche an, die kostenfrei sind. Diese Unterkünfte sind besonders für diejenigen gedacht, die eine weite Anreise haben, damit sie nicht bereits um 4 Uhr morgens losfahren müssen. Aufgrund der Vielzahl von Menschen, die aus dem Ausland kommen, sei es aufgrund von Versetzungen oder aus anderen Gründen, organisieren sie regelmässig verschiedene Events, um die Gemeinschaft zu stärken. Herr Abplanalp überreicht uns einen Flyer für ein internationales Essen, zu dem wir herzlich eingeladen wurden. Dabei handelt es sich um eine Gelegenheit, mit Menschen aus den USA, Mexiko, Kuba und anderen Ländern in Kontakt zu treten und kulturelle Vielfalt zu erleben. 
+
+![](bf238bc2-3653-43f4-ab44-405bc8396c4a.jpg)
 
 ### “Es gibt ein Leben nach dem Tod, wo wir zurück zum himmlischen Vater kommen.” 
 
