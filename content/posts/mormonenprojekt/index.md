@@ -19,16 +19,16 @@ Am 23. Dezember 1805 erblickte in Sharon/Vermont der Amerikaner Joseph Smith das
 An einem Dienstagmorgen entfaltet sich ein eher ungewöhnliches Spektakel. Haarscharf geschnittenes Gras wächst hier auf grossen Wiesen. Die Halme sind noch mit Tau vom kühlen letzten Abend bedeckt. Symmetrische Blumenbeete bringen Farbe in die ansonsten eintönige Umgebung. Grosse Bäume bewachen den Eingang vom Tempelplatz. Im Zentrum steht der Hauptanblick: Der Tempel der Kirche Jesu Christi der Heiligen der letzten Tage. In Essenz ein grosses graues Gebäude mit einer goldenen Figur auf dem Haupte. Versucht man in den Tempel zu gehen, so wird man von Französisch sprechenden Kirchmitgliedern angehalten, alle teuer gekleidet in weissen Anzügen und Trachten. Unreine dürfen nämlich nicht das Innere des grossen Tempels betrachten, es ist verboten. 
 
 Ein steinerner Pfad führt in das gewöhnlich aussehende Gemeindehaus. Darin befindet sich eine Sonntagschule. An allen Wänden hängen Porträts des heiligen Jesus Christus, in denen er an verschiedenen biblischen Ereignissen teilnimmt. Jedoch ist die Stimmung auf keinen Fall düster oder unfreundlich. Dies scheint im Büro des Bischofs noch mehr der Fall zu sein.  
-
-{{<box title="Simon Abplanalp">}}
-
-![Bischof der Kirche](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg "Simon Abplanalp")
-
-{{</box>}} Zu sehen sind ein Regal gefüllt mit Bibeln, eine griechische Vase und ein modernes Kunstwerk in der rechten Hälfte des Zimmers. 
+Zu sehen sind ein Regal gefüllt mit Bibeln, eine griechische Vase und ein modernes Kunstwerk in der rechten Hälfte des Zimmers. 
 
 Der große Schreibtisch bietet genug Platz für eine Diskussion. 
 
 Der 34-jährige Simon Abplanalp, der nicht nur Mitglied dieser Gemeinde, sondern auch ihr Bischof ist, leitet den Besuch. Er ist Vater von zwei kleinen Kindern, 6 und 8 Jahre alt, hat einem festen Platz in der Gemeinde und ist ein angesehener Mann.  
+{{<box title="Simon Abplanalp">}}
+
+![Bischof der Kirche](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg "Simon Abplanalp")
+
+{{</box>}}
 
 ### “Es gibt nicht eine Wahl oder irgendetwas, bei dem man sich bewirbt, Bischof zu werden, ist wie eine Berufung.” 
 
