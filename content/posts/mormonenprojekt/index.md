@@ -66,14 +66,8 @@ Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass s
 
 {{<box>}}Die gläubigen Mormonen aus Zollikofen sind nicht selten und schon garnicht die einzigen. Es gibt nämlich insgesamt 18‘794 verschiedene Standorte der Kirche von Ländern A bis Z weltweit auf allen Kontinenten verbreitet, wobei der Haupsitz, Church of Jesus Christ of Latter-Day Saints, in Salt Lake City, Utah in den USA ist. {{</box>}}
 
-<!--StartFragment-->
-
-Warum werden Mormonen von den christlichen Kirchen nicht als Christen angesehen? 
+### Warum werden Mormonen von den christlichen Kirchen nicht als Christen angesehen? 
 
 Die Mormonen glauben an die Bibel wie alle anderen Christen. Was sie aber unterscheidet ist, dass für sie nicht nur Jesus ein Mensch ist der Gott ist, sondern auch der Vater (Gott im Christentum) einmal Mensch gewesen ist. Was sie auch noch unterscheidet, ist, dass sie einen weiteren Propheten, Joseph Smith, in der Bibel haben. Ausserdem glauben Mormonen auch, dass jeder Mensch theoretisch durch Erleuchtung „göttlich“ werden können. Das kann auch dazu beitragen, dass sie in höheren Mitgliedern Aposteln oder sogar Propheten sehen können. 
 
-In einem zweiten Interview mit Angela Büchel Sladkovic, Dr. theol., die Mitglied der Kirche im Haus der Religionen Bern ist, wurde uns Information über die Mormonen im Zusammenhang mit der christlichen Gemeinschaft preisgegeben. Sie erklärt, dass es von den in der Ökumene verbundenen Kirchen weltweit keine gebe, die die Kirche Jesu Christi HLT als christliche Kirche anerkennt. Sie fügt zu, dass dies jedoch keine Zusammenarbeit zwischen ihnen und den Mormonen ausschliesse und, dass diese Zusammenarbeit im interreligiösen Feld stattfinde. 
-
- 
-
-<!--EndFragment-->
+In einem zweiten Interview mit Angela Büchel **Sladkovic, Dr. theol.**, die Mitglied der Kirche im Haus der Religionen Bern ist, wurde uns Information über die Mormonen im Zusammenhang mit der christlichen Gemeinschaft preisgegeben. Sie erklärt, dass es von den in der Ökumene verbundenen Kirchen weltweit keine gebe, die die Kirche Jesu Christi HLT als christliche Kirche anerkennt. Sie fügt zu, dass dies jedoch keine Zusammenarbeit zwischen ihnen und den Mormonen ausschliesse und, dass diese Zusammenarbeit im interreligiösen Feld stattfinde.
