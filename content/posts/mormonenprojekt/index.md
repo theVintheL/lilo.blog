@@ -32,7 +32,7 @@ Der 34-jährige **Simon Abplanalp**, der nicht nur Mitglied dieser Gemeinde, son
 
 Bischöfe in der Kirche Jesu Christi der Heiligen der letzten Tage müssen nicht Jahre lang der Kirche gedient haben, um ihre Position zu erhalten. Die einzigen Voraussetzungen sind, dass die Person verheiratet ist, Arbeit hat und sich bemüht, ein würdiges Leben zu führen. 
 
-Simon erläutert, es gibt mehrere Gründe dafür. Als Bischof hat man auch die Verantwortung zu schauen, dass es den Personen finanziell gut geht. Besonders die Arbeit ist wichtig. Wenn der Bischof keine Arbeit hat und es ihm oder ihr finanziell schlecht geht, jedoch sie die Verantwortung über das Geld der Kirche und der Gemeinde haben, kann dies die Lage verkomplizieren. Darum haben sie als Voraussetzung, dass sie eine Arbeitsstelle haben müssen, zudem muss man auch würdig sein.  
+Simon erläutert, es gibt mehrere Gründe dafür. Als Bischof muss man finanziell stabil sein. Wenn der Bischof keine Arbeit hat und es ihm finanziell schlecht geht, ist es schwierig ihm die Position als Bischof zu geben, weil sie auch die Verantwortung tragen über das Geld der Kirche, für das muss man würdig sein. 
 
 Aber was denn soll “würdig” genau heissen? Im Mormonentum gibt es viele Regeln, die befolgt werden müssen, damit man als ‘rein’ gilt. Zum einen gibt es gewöhnliche Regeln wie die Taufe. Jedoch gibt es auch besondere Regeln, zum Beispiel sind der Konsum von Kaffee oder Tee verboten, genau wie Alkohol auch. Es scheint kein Tabu zu sein, wenn jemand beim Konsum dieser Substanzen erwischt wird. Jedoch kann dies je nach Person variieren. Jedes muss eigentlich selbst wissen, was für es richtig ist. Sie glauben daran, dass jeder die Möglichkeit hat, auch persönliche Offenbarung vom himmlischen Partner zu bekommen und die kann man selbst finden. Der Glauben ist ausschliesslich, dass zum Beispiel Tee eine Substanz ist, die abhängig oder süchtig macht. Wenn Mormonen aber abhängig sind, sei es von Alkohol, sei es Tabak, aber auch eben Kaffee, dann besteht stark der Glauben, sie hätten ihre Freiheit verloren. Jeder trifft seine eigenen Entscheidungen. Es wird aber zum Beispiel nicht am Sonntag kontrolliert, wer jetzt genau nach Tabakrauch riecht. Grundsätzlich geht es um die Entscheidungsfreiheit, damit die Kontrolle über den eigenen Körper besteht, ist es besser, nicht abhängig zu sein.  
 
@@ -52,7 +52,7 @@ Simon Erklärt, ein Stereotyp, das oft mit den Mormonen verbunden wird, ist dass
 
 > “Wir sind die einzige mormonische Kirche in der Schweiz” 
 >
-> *Simon Abplanalp*
+> *\-Simon Abplanalp*
 
 Ausführlich erklärt er, dass ihre Gemeinde die einzige mormonische Kirche in der Schweiz ist, was bedeutet, dass sie eine besondere Verantwortung haben, sicherzustellen, dass alle Mormonen die Möglichkeit haben, an den Gottesdiensten teilzunehmen. Um dies zu gewährleisten, bieten sie Unterkünfte direkt neben der Kirche an, die kostenfrei sind. Diese Unterkünfte sind besonders für diejenigen gedacht, die eine weite Anreise haben, damit sie nicht bereits um 4 Uhr morgens losfahren müssen. Aufgrund der Vielzahl von Menschen, die aus dem Ausland kommen, sei es aufgrund von Versetzungen oder aus anderen Gründen, organisieren sie regelmässig verschiedene Events, um die Gemeinschaft zu stärken. Herr Abplanalp überreicht uns einen Flyer für ein internationales Essen, zu dem wir herzlich eingeladen wurden. Dabei handelt es sich um eine Gelegenheit, mit Menschen aus den USA, Mexiko, Kuba und anderen Ländern in Kontakt zu treten und kulturelle Vielfalt zu erleben. 
 
@@ -62,7 +62,9 @@ Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass s
 
 {{<box>}}Die gläubigen Mormonen aus Zollikofen sind nicht selten und schon garnicht die einzigen. Es gibt nämlich insgesamt 18‘794 verschiedene Standorte der Kirche von Ländern A bis Z weltweit auf allen Kontinenten verbreitet, wobei der Haupsitz, Church of Jesus Christ of Latter-Day Saints, in Salt Lake City, Utah in den USA ist. {{</box>}}
 
-### Warum werden Mormonen von den christlichen Kirchen nicht als Christen angesehen? 
+>  "Keiner sieht die Kirche Jesu Christi HLT als eine Christliche Kirche an"
+>
+> *\-Sladkovic Dr.Theol.*
 
 Die Mormonen glauben an die Bibel wie alle anderen Christen. Was sie aber unterscheidet ist, dass für sie nicht nur Jesus ein Mensch ist der Gott ist, sondern auch der Vater (Gott im Christentum) einmal Mensch gewesen ist. Was sie auch noch unterscheidet, ist, dass sie einen weiteren Propheten, Joseph Smith, in der Bibel haben. Ausserdem glauben Mormonen auch, dass jeder Mensch theoretisch durch Erleuchtung „göttlich“ werden können. Das kann auch dazu beitragen, dass sie in höheren Mitgliedern Aposteln oder sogar Propheten sehen können. 
 
