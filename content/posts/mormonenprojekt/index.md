@@ -22,7 +22,7 @@ Ein steinerner Pfad führt in das gewöhnlich aussehende Gemeindehaus. Darin bef
 
 ![Bischof der Kirche](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg "Simon Abplanalp")
 
-`{{</box>}}`
+{{</box>}}
 
 Zu sehen sind ein Regal gefüllt mit Bibeln, eine griechische Vase und ein modernes Kunstwerk in der rechten Hälfte des Zimmers. 
 
