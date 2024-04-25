@@ -52,7 +52,7 @@ Simon Erklärt, ein Stereotyp, das oft mit den Mormonen verbunden wird, ist dass
 
  
 
-![]()
+![](bf238bc2-3653-43f4-ab44-405bc8396c4a.jpg)
 
 ### “Wir sind die einzige mormonische Kirche in der Schweiz” 
 
@@ -65,3 +65,15 @@ Er erklärt ausführlich, dass ihre Gemeinde die einzige mormonische Kirche in d
 Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass seine Kirche als “Kirche Jesu Christi der Heiligen der letzten Tage” (die Kirche, in der er seine Profession betreibt) bezeichnet werden solle.  Der Übername “Mormonen” kommt von dem Prophet Mormon, einem von den Autoren des Buches Mormon war. Das Buch Mormon ist im Mormonentum ein weiterer Zeuge für Jesus Christus. Abgeleitet von dem bekamen die Glaubenden diesen Spitznamen. Anschliessend gibt er Preis, dass sie 13 Glaubensartikel haben. Im Kern ihres Glaubens seien Jesus Christus zusammen mit seiner Auferstehung, seinem Sündopfer und dem Fakt, dass es ein Leben nach dem Tod gebe, wo sie zurück zu Jesus und ihrem himmlischen Vater gehen.
 
 {{<box>}}Die gläubigen Mormonen aus Zollikofen sind nicht selten und schon garnicht die einzigen. Es gibt nämlich insgesamt 18‘794 verschiedene Standorte der Kirche von Ländern A bis Z weltweit auf allen Kontinenten verbreitet, wobei der Haupsitz, Church of Jesus Christ of Latter-Day Saints, in Salt Lake City, Utah in den USA ist. {{</box>}}
+
+<!--StartFragment-->
+
+Warum werden Mormonen von den christlichen Kirchen nicht als Christen angesehen? 
+
+Die Mormonen glauben an die Bibel wie alle anderen Christen. Was sie aber unterscheidet ist, dass für sie nicht nur Jesus ein Mensch ist der Gott ist, sondern auch der Vater (Gott im Christentum) einmal Mensch gewesen ist. Was sie auch noch unterscheidet, ist, dass sie einen weiteren Propheten, Joseph Smith, in der Bibel haben. Ausserdem glauben Mormonen auch, dass jeder Mensch theoretisch durch Erleuchtung „göttlich“ werden können. Das kann auch dazu beitragen, dass sie in höheren Mitgliedern Aposteln oder sogar Propheten sehen können. 
+
+In einem zweiten Interview mit Angela Büchel Sladkovic, Dr. theol., die Mitglied der Kirche im Haus der Religionen Bern ist, wurde uns Information über die Mormonen im Zusammenhang mit der christlichen Gemeinschaft preisgegeben. Sie erklärt, dass es von den in der Ökumene verbundenen Kirchen weltweit keine gebe, die die Kirche Jesu Christi HLT als christliche Kirche anerkennt. Sie fügt zu, dass dies jedoch keine Zusammenarbeit zwischen ihnen und den Mormonen ausschliesse und, dass diese Zusammenarbeit im interreligiösen Feld stattfinde. 
+
+ 
+
+<!--EndFragment-->
