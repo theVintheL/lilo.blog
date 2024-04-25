@@ -14,15 +14,11 @@ Am 23. Dezember 1805 erblickte in Sharon/Vermont der Amerikaner Joseph Smith das
 
 {{<youtube  [](https://www.youtube.com/watch?v=DQ5wQsSxxjg)[Auslands-Mission für Gott: Mormonen in Deutschland | Galileo | ProSieben - YouTube](https://www.youtube.com/watch?v=DQ5wQsSxxjg)>}}
 
-
-
 An einem Dienstagmorgen entfaltet sich ein eher ungewöhnliches Spektakel. Haarscharf geschnittenes Gras wächst hier auf grossen Wiesen. Die Halme sind noch mit Tau vom kühlen letzten Abend bedeckt. Symmetrische Blumenbeete bringen Farbe in die ansonsten eintönige Umgebung. Grosse Bäume bewachen den Eingang vom Tempelplatz. Im Zentrum steht der Hauptanblick: Der Tempel der Kirche Jesu Christi der Heiligen der letzten Tage. In Essenz ein grosses graues Gebäude mit einer goldenen Figur auf dem Haupte. Versucht man in den Tempel zu gehen, so wird man von Französisch sprechenden Kirchmitgliedern angehalten, alle teuer gekleidet in weissen Anzügen und Trachten. Unreine dürfen nämlich nicht das Innere des grossen Tempels betrachten, es ist verboten. 
 
 Ein steinerner Pfad führt in das gewöhnlich aussehende Gemeindehaus. Darin befindet sich eine Sonntagschule. An allen Wänden hängen Porträts des heiligen Jesus Christus, in denen er an verschiedenen biblischen Ereignissen teilnimmt. Jedoch ist die Stimmung auf keinen Fall düster oder unfreundlich. Dies scheint im Büro des Bischofs noch mehr der Fall zu sein.  
 
-
-
-{{<box title="Ausklappbare Box">}}
+{{<box title="Simon Abplanalp">}}
 
 ![Bischoff der Kirche](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg "Simon Abplanalp")
 
@@ -40,8 +36,6 @@ Bischöfe in der Kirche Jesu Christi der Heiligen der letzten Tage müssen nicht
 
 Simon erläutert, es gibt mehrere Gründe dafür. Als Bischof hat man auch die Verantwortung zu schauen, dass es den Personen finanziell gut geht. Besonders die Arbeit ist wichtig. Wenn der Bischof keine Arbeit hat und es ihm oder ihr finanziell schlecht geht, jedoch sie die Verantwortung über das Geld der Kirche und der Gemeinde haben, kann dies die Lage verkomplizieren. Darum haben sie als Voraussetzung, dass sie eine Arbeitsstelle haben müssen, zudem muss man auch würdig sein. 
 
- 
-
 Aber was denn soll “würdig” genau heissen? Im Mormonentum gibt es viele Regeln, die befolgt werden müssen, damit man als ‘rein’ gilt. Zum einen gibt es gewöhnliche Regeln wie die Taufe. Jedoch gibt es auch besondere Regeln, zum Beispiel sind der Konsum von Kaffee oder Tee verboten, genau wie Alkohol auch. Es scheint kein Tabu zu sein, wenn jemand beim Konsum dieser Substanzen erwischt wird. Jedoch kann dies je nach Person variieren. Jedes muss eigentlich selbst wissen, was für es richtig ist. Sie glauben daran, dass jeder die Möglichkeit hat, auch persönliche Offenbarung vom himmlischen Partner zu bekommen und die kann man selbst finden. Der Glauben ist ausschliesslich, dass zum Beispiel Tee eine Substanz ist, die abhängig oder süchtig macht. Wenn Mormonen aber abhängig sind, sei es von Alkohol, sei es Tabak, aber auch eben Kaffee, dann besteht stark der Glauben, sie hätten ihre Freiheit verloren. Jeder trifft seine eigenen Entscheidungen. Es wird aber zum Beispiel nicht am Sonntag kontrolliert, wer jetzt genau nach Tabakrauch riecht. Grundsätzlich geht es um die Entscheidungsfreiheit, damit die Kontrolle über den eigenen Körper besteht, ist es besser, nicht abhängig zu sein.  
 
 ![](251a106d-2008-4c42-baea-720a204f76bc.jpg)
@@ -52,21 +46,15 @@ Darauf antwortet der Bischof, dass das, woran Mormonen sicher glauben, sei, dass
 
 Joseph Smith war sowohl der Gründer des Mormonentums, des Latter Day Saint Movement als auch der erste Präsident der Kirche Jesu Christi der Heiligen der letzten Tage. Er wurde in Sharon, Vermont geboren und zog mit seiner Familie in den Westen New Yorks. Wie Bischof Abplanalp meint, habe Joseph Smith als Jugendlicher durch eine Reihe von Visionen von Jesus, Gott und einem Engel Offenbarung und dadurch Zugriff auf die goldene Bibel erhalten, woraufhin er 1830 mit dieser Quelle das Buch „Mormon“ verfasst habe. Er gewann eine grosse Menge an Anhängern bis er 1840 aufgrund seiner Ermordung seine Position als Präsident der Kirche verlor. Wer die Positions des Nachfolgers bekam, bleibt bis heute umstritten. 
 
- 
-
 ### „Heisst es, dass mormonische Frauen durch die Polygamie eine tiefere Stellung als Männer haben?“ 
 
 Simon Erklärt, ein Stereotyp, das oft mit den Mormonen verbunden wird, ist dass Frauen eine tiefere Stelle als Männer haben, (was jedoch nicht stimmt) da früher männliche Mormonen in den USA mehrere Frauen haben durften. Sie hatten andere Aufgaben, seien aber gleichwertig. Das Stereotyp entstand, als in früheren Jahren Mormonen in den USA oftmals Polygamie betrieben, wobei ein Mann mehrere Frauen haben konnte. Die Polygamie hatte aber auch einen spezifischen Grund. Europäische Immigranten in den USA wollten sich der Kirche anschliessen, jedoch war die Kirche auf der Flucht, da sie verteufelt wurde und sie nirgends willkommen waren. Die Leute dachten, der Prophet Joseph Smith selbst, sei verrückt. Auf der Flucht durch die amerikanische Prärie oft angegriffen von Banditen, verhungert oder verdurstet etc. sind viele von ihnen gestorben. Am Schluss sind sie im Salzseetal, wo jetzt Salt Lake City ist, angekommen. Es gab viele Frauen, die keinen Mann mehr hatten, da er auf der Reise starb.  Es wurde also so organisiert, damit die Frauen nicht allein waren, dass sie zu einer Familie gehörten, deswegen haben bereits verheiratete Männer geheiratet. Heutzutage ist die Polygamie in den Vereinigten Staaten verboten, weswegen die meisten Mormonen weltweit diese Praxis nicht mehr betreiben. 
-
- 
 
 ![](bf238bc2-3653-43f4-ab44-405bc8396c4a.jpg)
 
 ### “Wir sind die einzige mormonische Kirche in der Schweiz” 
 
 Er erklärt ausführlich, dass ihre Gemeinde die einzige mormonische Kirche in der Schweiz ist, was bedeutet, dass sie eine besondere Verantwortung haben, sicherzustellen, dass alle Mormonen die Möglichkeit haben, an den Gottesdiensten teilzunehmen. Um dies zu gewährleisten, bieten sie Unterkünfte direkt neben der Kirche an, die kostenfrei sind. Diese Unterkünfte sind besonders für diejenigen gedacht, die eine weite Anreise haben, damit sie nicht bereits um 4 Uhr morgens losfahren müssen. Aufgrund der Vielzahl von Menschen, die aus dem Ausland kommen, sei es aufgrund von Versetzungen oder aus anderen Gründen, organisieren sie regelmässig verschiedene Events, um die Gemeinschaft zu stärken. Herr Abplanalp überreicht uns einen Flyer für ein internationales Essen, zu dem wir herzlich eingeladen wurden. Dabei handelt es sich um eine Gelegenheit, mit Menschen aus den USA, Mexiko, Kuba und anderen Ländern in Kontakt zu treten und kulturelle Vielfalt zu erleben. 
-
- 
 
 ### “Es gibt ein Leben nach dem Tod, wo wir zurück zum himmlischen Vater kommen.” 
 
@@ -79,7 +67,5 @@ Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass s
 Die Mormonen glauben an die Bibel wie alle anderen Christen. Was sie aber unterscheidet ist, dass für sie nicht nur Jesus ein Mensch ist der Gott ist, sondern auch der Vater (Gott im Christentum) einmal Mensch gewesen ist. Was sie auch noch unterscheidet, ist, dass sie einen weiteren Propheten, Joseph Smith, in der Bibel haben. Ausserdem glauben Mormonen auch, dass jeder Mensch theoretisch durch Erleuchtung „göttlich“ werden können. Das kann auch dazu beitragen, dass sie in höheren Mitgliedern Aposteln oder sogar Propheten sehen können. 
 
 In einem zweiten Interview mit Angela Büchel **Sladkovic, Dr. theol.**, die Mitglied der Kirche im Haus der Religionen Bern ist, wurde uns Information über die Mormonen im Zusammenhang mit der christlichen Gemeinschaft preisgegeben. Sie erklärt, dass es von den in der Ökumene verbundenen Kirchen weltweit keine gebe, die die Kirche Jesu Christi HLT als christliche Kirche anerkennt. Sie fügt zu, dass dies jedoch keine Zusammenarbeit zwischen ihnen und den Mormonen ausschliesse und, dass diese Zusammenarbeit im interreligiösen Feld stattfinde. 
-
- 
 
 ![](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
