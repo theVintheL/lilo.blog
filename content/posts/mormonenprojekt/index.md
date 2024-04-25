@@ -28,8 +28,6 @@ Ein steinerner Pfad führt in das gewöhnlich aussehende Gemeindehaus. Darin bef
 
 `{{</box>}}`
 
-
-
 Zu sehen sind ein Regal gefüllt mit Bibeln, eine griechische Vase und ein modernes Kunstwerk in der rechten Hälfte des Zimmers. 
 
 Der große Schreibtisch bietet genug Platz für eine Diskussion. 
