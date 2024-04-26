@@ -26,9 +26,6 @@ Der 34-jährige **Simon Abplanalp**, der nicht nur Mitglied dieser Gemeinde, son
 
 {{</box>}}
 
- {{<box>}}**Der Gründer der Mormonen**\
-Am 23. Dezember 1805 erblickte in Sharon/Vermont der Amerikaner Joseph Smith das Licht der Welt. Er war das vierte von neun Kindern des Ehepaares Lucy (geb. Mack) und Joseph Smith sen. Während eines Gebetes in einem Wäldchen am Rande seines Wohnortes Manchester/N.Y. seien ihm in einer Vision »Gott der Vater«, einem Engel und »Jesus Christus« erschienen. »Gott« habe ihm geraten, sich keiner der bestehenden Kirchen anzuschließen, da sie sich alle im Irrtum« befänden und ihre Bekenntnisse »ein Greuel in seinen Augen« seien. Er hat dadurch die goldene Bibel erhalten, 1830 hat er mit dieser Quelle das Buch Mormon verfasst. {{</box>}}
-
 ### Der Weg zum Bishof
 
 Bischöfe in der Kirche Jesu Christi der Heiligen der letzten Tage müssen nicht Jahre lang der Kirche gedient haben, um ihre Position zu erhalten. Die einzigen Voraussetzungen sind, dass die Person verheiratet ist, Arbeit hat und sich bemüht, ein würdiges Leben zu führen. <!--StartFragment-->
@@ -55,8 +52,6 @@ Joseph Smith war sowohl der Gründer des Mormonentums, des Latter Day Saint Move
 
 Simon erklärt, ein Stereotyp, das oft mit den Mormonen verbunden wird, ist dass Frauen eine tiefere Stellung als Männer haben, (was jedoch nicht stimmt) da früher männliche Mormonen in den USA mehrere Frauen haben durften. Sie hatten andere Aufgaben, seien aber gleichwertig. Das Stereotyp entstand, als in früheren Jahren Mormonen in den USA oftmals Polygamie betrieben, wobei ein Mann mehrere Frauen haben konnte. Die Polygamie hatte aber auch einen spezifischen Grund. Der Bischof erklärte es so. 
 
- 
-
 Europäische Immigranten in den USA wollten sich der Kirche anschliessen, jedoch war die Kirche auf der Flucht, da sie verteufelt wurde und sie nirgends willkommen waren. Die Leute dachten, der Prophet, Joseph Smith selbst, sei verrückt. Auf der Flucht durch die amerikanische Prärie oft angegriffen von Banditen, verhungert oder verdurstet etc. sind viele von ihnen gestorben. Am Schluss sind sie im Salzseetal, wo jetzt Salt Lake City ist, angekommen. Es gab viele Frauen, die keinen Mann mehr hatten, da er auf der Reise starb.  Es wurde also so organisiert, damit die Frauen nicht allein waren, dass sie zu einer Familie gehörten, deswegen haben bereits verheiratete Männer geheiratet. Heutzutage ist die Polygamie in den Vereinigten Staaten verboten, weswegen die meisten Mormonen weltweit diese Praxis nicht mehr betreiben. Polygamie wird noch mit einer Gefängnisstrafe von bis zu fünf Jahren geahndet.
 
 ![](bf238bc2-3653-43f4-ab44-405bc8396c4a.jpg)
@@ -72,8 +67,6 @@ Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass s
 ![Quelle: Intcreator (own work)](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
 
  {{</box>}}
-
-
 
 >  "Keiner sieht die Kirche Jesu Christi HLT als eine Christliche Kirche an"
 >
