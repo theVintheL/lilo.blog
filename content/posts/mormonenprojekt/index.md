@@ -9,7 +9,7 @@ image = "e52b9839-55ad-4288-925b-a1f372bc38ac.jpg"
 
 Eine Reportage von Davina, Kimi und Owen. 
 
-{{<box title="Geschichte Mormonen">}} {{<box>}}**Der Gründer der Mormonen**\
+{{<box title="Geschichte Mormonen">}} {{<box>}}**Die Gründung Mormonen**\
  {{</box>}} {{</box>}}
 
 An einem Dienstagmorgen entfaltet sich ein eher ungewöhnliches Spektakel. Haarscharf geschnittenes Gras wächst hier auf grossen Wiesen. Die Halme sind noch mit Tau vom kühlen letzten Abend bedeckt. Symmetrische Blumenbeete bringen Farbe in die ansonsten eintönige Umgebung. Grosse Bäume bewachen den Eingang vom Tempelplatz. Im Zentrum steht der Hauptanblick: Der Tempel der Kirche Jesu Christi der Heiligen der letzten Tage. In Essenz ein grosses graues Gebäude mit einer goldenen Figur auf dem Haupte. Versucht man in den Tempel zu gehen, so wird man von Französisch sprechenden Kirchmitgliedern angehalten, alle teuer gekleidet in weissen Anzügen und Trachten. Unreine dürfen nämlich nicht das Innere des grossen Tempels betrachten, es ist verboten. 
