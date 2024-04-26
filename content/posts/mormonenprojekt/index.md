@@ -79,6 +79,6 @@ Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass s
 
  {{</box>}}
 
-Mit diesen Worten ist das Interview abgeschlossen. Simon Abplanalp begleitet uns vor dem Mormonentempel. Zum Schluss bedanken wir uns bei Rocco für die Möglichkeit einer Führung durch das Gemeinde Gebäude. Wir verabschieden uns von ihm und verlassen das Gelände.
+Mit diesen Worten ist das Interview abgeschlossen. Simon Abplanalp begleitet die Interviewer vor dem Mormonentempel. Zum Schluss bedanken wir uns bei Rocco für die Möglichkeit einer Führung durch das Gemeinde Gebäude. Wir verabschieden uns von ihm und verlassen das Gelände.
 
-Einen Morgen im Mormonischen Gemeindehaus zu verbringen ermöglicht uns, einen Einblick in das Leben eines mormonischen Bishoff zu bekommen. Dieses einmalige Ereignis werden wir nicht so schnell vergessen.
+Einen Morgen im Mormonischen Gemeindehaus zu verbringen ermöglicht uns, einen Einblick in das Leben eines mormonischen Bischof zu bekommen. Dieses einmalige Ereignis werden wir nicht so schnell vergessen.
