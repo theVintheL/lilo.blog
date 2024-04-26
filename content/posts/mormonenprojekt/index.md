@@ -10,11 +10,11 @@ image = "e52b9839-55ad-4288-925b-a1f372bc38ac.jpg"
 Eine Reportage von Davina, Kimi und Owen. 
 
 {{<box title="Geschichte Mormonen">}} {{<box>}}**Der Gründer der Mormonen**\
-Am 23. Dezember 1805 erblickte in Sharon/Vermont der Amerikaner Joseph Smith das Licht der Welt. Er war das vierte von neun Kindern des Ehepaares Lucy (geb. Mack) und Joseph Smith sen. Während eines Gebetes in einem Wäldchen am Rande seines Wohnortes Manchester/N.Y. seien ihm in einer Vision »Gott der Vater«, einem Engel und »Jesus Christus« erschienen. »Gott« habe ihm geraten, sich keiner der bestehenden Kirchen anzuschließen, da sie sich alle im Irrtum« befänden und ihre Bekenntnisse »ein Greuel in seinen Augen« seien. Er hat dadurch die goldene Bibel erhalten, 1830 hat er mit dieser Quelle das Buch Mormon verfasst. {{</box>}} {{</box>}}
+ {{</box>}} {{</box>}}
 
 An einem Dienstagmorgen entfaltet sich ein eher ungewöhnliches Spektakel. Haarscharf geschnittenes Gras wächst hier auf grossen Wiesen. Die Halme sind noch mit Tau vom kühlen letzten Abend bedeckt. Symmetrische Blumenbeete bringen Farbe in die ansonsten eintönige Umgebung. Grosse Bäume bewachen den Eingang vom Tempelplatz. Im Zentrum steht der Hauptanblick: Der Tempel der Kirche Jesu Christi der Heiligen der letzten Tage. In Essenz ein grosses graues Gebäude mit einer goldenen Figur auf dem Haupte. Versucht man in den Tempel zu gehen, so wird man von Französisch sprechenden Kirchmitgliedern angehalten, alle teuer gekleidet in weissen Anzügen und Trachten. Unreine dürfen nämlich nicht das Innere des grossen Tempels betrachten, es ist verboten. 
 
-![Vorgarten des mormonen Tempel](16febbcd-dfc1-456b-b8df-e2627eb6551d.jpg)
+![Vorgarten des mormonen Tempel (Bild: Kimi Aka)](16febbcd-dfc1-456b-b8df-e2627eb6551d.jpg)
 
 Ein steinerner Pfad führt in das gewöhnlich aussehende Gemeindehaus. Darin befindet sich eine Sonntagschule. An allen Wänden hängen Porträts des heiligen Jesus Christus, in denen er an verschiedenen biblischen Ereignissen teilnimmt. Jedoch ist die Stimmung auf keinen Fall düster oder unfreundlich. Dies scheint im Büro des Bischofs noch mehr der Fall zu sein.  
 Zu sehen sind ein Regal gefüllt mit Bibeln, eine griechische Vase und ein modernes Kunstwerk in der rechten Hälfte des Zimmers. Der große Schreibtisch bietet genug Platz für eine Diskussion. 
@@ -22,7 +22,7 @@ Zu sehen sind ein Regal gefüllt mit Bibeln, eine griechische Vase und ein moder
 Der 34-jährige **Simon Abplanalp**, der nicht nur Mitglied dieser Gemeinde, sondern auch ihr Bischof ist, leitet den Besuch. Er ist Vater von zwei kleinen Kindern, 6 und 8 Jahre alt, hat einen festen Platz in der Gemeinde und ist ein angesehener Mann.  
 {{<box title="Simon Abplanalp">}}
 
-![Bischof der Kirche](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg "Simon Abplanalp")
+![Bischof der Kirche Simon Abplanalp (Bild: Kimi Aka)](e0e4c859-0c06-4919-a5ec-0fd518284fdf.jpg "Simon Abplanalp")
 
 {{</box>}}
 
@@ -34,7 +34,7 @@ Es gibt mehrere Gründe dafür. Simon erläutert: „Als Bischof hat man auch di
 
 Aber was denn soll “würdig” genau heissen? Im Mormonentum gibt es viele Regeln, die befolgt werden müssen, damit man als ‘rein’ gilt. Zum einen gibt es gewöhnliche Regeln wie die Taufe. Jedoch gibt es auch besondere Regeln, zum Beispiel sind der Konsum von Kaffee oder Tee verboten, genau wie Alkohol auch.  Wer sich daran hält, wird nebst Gesundheit auch Schutz, Erkenntnis und Weisheit versprochen. [](https://www.blick.ch/ausland/kauft-nichts-in-einem-coffeeshop-kirche-der-mormonen-spricht-kaffee-suendern-ins-gewissen-id15470190.html) Es scheint kein Tabu zu sein, wenn jemand beim Konsum dieser Substanzen erwischt wird. Jedoch kann dies je nach Person variieren. Jedes muss eigentlich selbst wissen, was für es richtig ist. Sie glauben daran, dass jeder die Möglichkeit hat, auch persönliche Offenbarung vom himmlischen Partner zu bekommen und die kann man selbst finden. Der Glauben ist ausschliesslich, dass zum Beispiel Tee eine Substanz ist, die abhängig oder süchtig macht. Wenn Mormonen aber abhängig sind, sei es von Alkohol, sei es Tabak, aber auch eben Kaffee, dann besteht stark der Glauben, sie hätten ihre Freiheit verloren. Jeder trifft seine eigenen Entscheidungen. Es wird aber zum Beispiel nicht am Sonntag kontrolliert, wer jetzt genau nach Tabakrauch riecht. Grundsätzlich geht es um die Entscheidungsfreiheit, damit die Kontrolle über den eigenen Körper besteht, ist es besser, nicht abhängig zu sein.  
 
-![ Die Wanne für die Taufe](251a106d-2008-4c42-baea-720a204f76bc.jpg)
+![ Die Wanne für die Taufe in der Gesellschafts Gebäude (Bild: Kimi Aka)](251a106d-2008-4c42-baea-720a204f76bc.jpg)
 
 > “Wir sind die einzige mormonische Kirche in der Schweiz” 
 >
@@ -54,7 +54,7 @@ Simon erklärt, ein Stereotyp, das oft mit den Mormonen verbunden wird, ist dass
 
 Europäische Immigranten in den USA wollten sich der Kirche anschliessen, jedoch war die Kirche auf der Flucht, da sie verteufelt wurde und sie nirgends willkommen waren. Die Leute dachten, der Prophet, Joseph Smith selbst, sei verrückt. Auf der Flucht durch die amerikanische Prärie oft angegriffen von Banditen, verhungert oder verdurstet etc. sind viele von ihnen gestorben. Am Schluss sind sie im Salzseetal, wo jetzt Salt Lake City ist, angekommen. Es gab viele Frauen, die keinen Mann mehr hatten, da er auf der Reise starb.  Es wurde also so organisiert, damit die Frauen nicht allein waren, dass sie zu einer Familie gehörten, deswegen haben bereits verheiratete Männer geheiratet. Heutzutage ist die Polygamie in den Vereinigten Staaten verboten, weswegen die meisten Mormonen weltweit diese Praxis nicht mehr betreiben. Polygamie wird noch mit einer Gefängnisstrafe von bis zu fünf Jahren geahndet.
 
-![](bf238bc2-3653-43f4-ab44-405bc8396c4a.jpg)
+![Die algemeine Kirchenraum für die nicht getauften (Bild: Kimi Aka)](bf238bc2-3653-43f4-ab44-405bc8396c4a.jpg)
 
 ### Das Leben nach dem Tod, zum himmlischen Vater
 
@@ -64,7 +64,7 @@ Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass s
 
 {{<box>}}Die Kirche Jesu Christi hat laut ihrer Website seit Dezember 2023 über 17 Millionen an Mitgliedern gewonnen 
 
-![Quelle: Intcreator (own work)](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
+![Die Zunahme der Mitglieder USA (Quelle: Intcreator (own work))](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
 
  {{</box>}}
 
