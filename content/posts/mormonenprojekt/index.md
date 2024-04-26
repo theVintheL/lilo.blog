@@ -75,7 +75,7 @@ Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass s
 
 {{<box>}}Die Kirche Jesu Christi hat laut ihrer Website seit Dezember 2023 über 17 Millionen an Mitgliedern gewonnen 
 
-![Die Zunahme der Mitglieder USA (Quelle: Intcreator (own work))](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
+![Die Zunahme der Mitglieder USA (Quelle:https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints#/media/File:LDS_Church_Membership_1830-2021.png )](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
 
  {{</box>}}
 
