@@ -5,7 +5,9 @@ draft = false
 pinned = false
 image = "e52b9839-55ad-4288-925b-a1f372bc38ac.jpg"
 +++
-## Ein Bischof der Kirche Jesu Christi der Heiligen der Letzten Tage berichtet über seine Religion und ihre einzigartige Originalität. 
+{{<lead>}}Ein Bischof der Kirche Jesu Christi der Heiligen der Letzten Tage berichtet über seine Religion und ihre einzigartige Originalität. {{</lead>}}
+
+
 
 Eine Reportage von Davina, Kimi und Owen. 
 
