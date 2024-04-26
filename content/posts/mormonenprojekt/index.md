@@ -9,7 +9,7 @@ image = "e52b9839-55ad-4288-925b-a1f372bc38ac.jpg"
 
 
 
-Eine Reportage von Davina, Kimi und Owen. 
+*Eine Reportage von Davina, Kimi und Owen.* 
 
 {{<box title="Die Gründung Mormonen">}} {{<box>}} Joseph Smith wurde 1805 in Vermont geboren und wuchs in einer Umgebung voller Aberglauben und religiöser Unruhe auf. Als junger Mann behauptete er, göttliche Visionen erhalten zu haben, darunter eine Begegnung mit "Gott dem Vater" und "Jesus Christus", die ihm rieten, keiner bestehenden Kirche beizutreten. Später behauptete er, von einem Engel namens Moroni besucht worden zu sein, der ihm antike Goldplatten zeigte, die er angeblich übersetzte und als "Das Buch Mormon" veröffentlichte. Aufgrund dieser Offenbarungen gründete Smith 1830 die Kirche Jesu Christi der Heiligen der Letzten Tage.
 
