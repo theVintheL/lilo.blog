@@ -9,8 +9,9 @@ image = "e52b9839-55ad-4288-925b-a1f372bc38ac.jpg"
 
 Eine Reportage von Davina, Kimi und Owen. 
 
-{{<box title="Geschichte Mormonen">}} {{<box>}}**Die Gründung Mormonen**\
- {{</box>}} {{</box>}}
+{{<box title="Die Gründung Mormonen">}} {{<box>}} Joseph Smith wurde 1805 in Vermont geboren und wuchs in einer Umgebung voller Aberglauben und religiöser Unruhe auf. Als junger Mann behauptete er, göttliche Visionen erhalten zu haben, darunter eine Begegnung mit "Gott dem Vater" und "Jesus Christus", die ihm rieten, keiner bestehenden Kirche beizutreten. Später behauptete er, von einem Engel namens Moroni besucht worden zu sein, der ihm antike Goldplatten zeigte, die er angeblich übersetzte und als "Das Buch Mormon" veröffentlichte. Aufgrund dieser Offenbarungen gründete Smith 1830 die Kirche Jesu Christi der Heiligen der Letzten Tage.
+
+Nach seinem Tod übernahm Brigham Young die Führung und führte die Mormonen in den Westen, wo sie unter anderem Salt Lake City gründeten. Die Praxis der Polygamie führte zu Konflikten mit der Regierung, bis sie 1890 offiziell aufgegeben wurde. Trotz dieser Hindernisse verbreitete sich die Mormonenmission weltweit, auch in Deutschland, wo heute etwa 38.000 Anhänger leben. Insgesamt gibt es weltweit rund 10 Millionen Mormonen. {{</box>}} {{</box>}}
 
 An einem Dienstagmorgen entfaltet sich ein eher ungewöhnliches Spektakel. Haarscharf geschnittenes Gras wächst hier auf grossen Wiesen. Die Halme sind noch mit Tau vom kühlen letzten Abend bedeckt. Symmetrische Blumenbeete bringen Farbe in die ansonsten eintönige Umgebung. Grosse Bäume bewachen den Eingang vom Tempelplatz. Im Zentrum steht der Hauptanblick: Der Tempel der Kirche Jesu Christi der Heiligen der letzten Tage. In Essenz ein grosses graues Gebäude mit einer goldenen Figur auf dem Haupte. Versucht man in den Tempel zu gehen, so wird man von Französisch sprechenden Kirchmitgliedern angehalten, alle teuer gekleidet in weissen Anzügen und Trachten. Unreine dürfen nämlich nicht das Innere des grossen Tempels betrachten, es ist verboten. 
 
