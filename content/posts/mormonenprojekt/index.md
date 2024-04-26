@@ -59,6 +59,14 @@ Europäische Immigranten in den USA wollten sich der Kirche anschliessen, jedoch
 
 ![Die algemeine Kirchenraum für die nicht getauften (Bild: Kimi Aka)](bf238bc2-3653-43f4-ab44-405bc8396c4a.jpg)
 
+>  "Keiner sieht die Kirche Jesu Christi HLT als eine Christliche Kirche an"
+>
+> *\-Sladkovic Dr.Theol.*
+
+In einem zweiten Interview mit Angela Büchel **Sladkovic, Dr. theol.**, welche Mitglied der Kirche im Haus der Religionen Bern ist, wurde uns Information über die Mormonen im Zusammenhang mit der christlichen Gemeinschaft preisgegeben. Sie erklärt, dass es von den in der Ökumene verbundenen Kirchen weltweit keine gebe, die die Kirche Jesu Christi HLT als christliche Kirche anerkennt. Sie fügt zu, dass dies jedoch keine Zusammenarbeit zwischen ihnen und den Mormonen ausschliesse und, dass diese Zusammenarbeit im interreligiösen Feld stattfinde. 
+
+Die Mormonen glauben an die Bibel wie alle anderen Christen. Was sie aber unterscheidet ist, dass für sie nicht nur Jesus ein Mensch ist der Gott ist, sondern auch der Vater (Gott im Christentum) einmal Mensch gewesen ist. Was sie auch noch unterscheidet, ist, dass sie einen weiteren Propheten, Joseph Smith, in der Bibel haben. Ausserdem glauben Mormonen auch, dass jeder Mensch theoretisch durch Erleuchtung „göttlich“ werden können. Das kann auch dazu beitragen, dass sie in höheren Mitgliedern Aposteln oder sogar Propheten sehen können. Diese sind die Kernunterschiede zwischen dem christlichen und dem mormonischen Glauben. Ein weiterer potenzieller Grund für die Abgrenzung der Christen und der Mormonen könnte ihr kontroverser Glaube sein. Es gab damals eine Unstimmigkeit zwischen Mormonen und Christen, weshalb sie am Anfang ihrer Zeit wegen ihres Glaubens verfolgt und ermordet wurden.
+
 ### Das Leben nach dem Tod, zum himmlischen Vater
 
 Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass seine Kirche als “Kirche Jesu Christi der Heiligen der letzten Tage” (die Kirche, in der er seine Profession betreibt) bezeichnet werden solle.  Der Übername “Mormonen” kommt von dem Prophet Mormon, einem von den Autoren des Buches Mormon war. Das Buch Mormon ist im Mormonentum ein weiterer Zeuge für Jesus Christus. Abgeleitet von dem bekamen die Glaubenden diesen Spitznamen. Anschliessend gibt er Preis, dass sie 13 Glaubensartikel haben. Im Kern ihres Glaubens seien Jesus Christus zusammen mit seiner Auferstehung, seinem Sündopfer und dem Fakt, dass es ein Leben nach dem Tod gebe, wo sie zurück zu Jesus und ihrem himmlischen Vater gehen.
@@ -70,14 +78,6 @@ Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass s
 ![Die Zunahme der Mitglieder USA (Quelle: Intcreator (own work))](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
 
  {{</box>}}
-
->  "Keiner sieht die Kirche Jesu Christi HLT als eine Christliche Kirche an"
->
-> *\-Sladkovic Dr.Theol.*
-
-In einem zweiten Interview mit Angela Büchel **Sladkovic, Dr. theol.**, welche Mitglied der Kirche im Haus der Religionen Bern ist, wurde uns Information über die Mormonen im Zusammenhang mit der christlichen Gemeinschaft preisgegeben. Sie erklärt, dass es von den in der Ökumene verbundenen Kirchen weltweit keine gebe, die die Kirche Jesu Christi HLT als christliche Kirche anerkennt. Sie fügt zu, dass dies jedoch keine Zusammenarbeit zwischen ihnen und den Mormonen ausschliesse und, dass diese Zusammenarbeit im interreligiösen Feld stattfinde. 
-
-Die Mormonen glauben an die Bibel wie alle anderen Christen. Was sie aber unterscheidet ist, dass für sie nicht nur Jesus ein Mensch ist der Gott ist, sondern auch der Vater (Gott im Christentum) einmal Mensch gewesen ist. Was sie auch noch unterscheidet, ist, dass sie einen weiteren Propheten, Joseph Smith, in der Bibel haben. Ausserdem glauben Mormonen auch, dass jeder Mensch theoretisch durch Erleuchtung „göttlich“ werden können. Das kann auch dazu beitragen, dass sie in höheren Mitgliedern Aposteln oder sogar Propheten sehen können. Diese sind die Kernunterschiede zwischen dem christlichen und dem mormonischen Glauben. Ein weiterer potenzieller Grund für die Abgrenzung der Christen und der Mormonen könnte ihr kontroverser Glaube sein. Es gab damals eine Unstimmigkeit zwischen Mormonen und Christen, weshalb sie am Anfang ihrer Zeit wegen ihres Glaubens verfolgt und ermordet wurden.
 
 Mit diesen Worten ist das Interview abgeschlossen. Simon Abplanalp begleitet uns vor dem Mormonentempel. Zum Schluss bedanken wir uns bei Rocco für die Möglichkeit einer Führung durch das Gemeinde Gebäude. Wir verabschieden uns von ihm und verlassen das Gelände.
 
