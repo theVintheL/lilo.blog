@@ -71,14 +71,16 @@ Bischof Abplanalp sagt, der Name “Mormonen” sei nur ein Übername und dass s
 
 {{<box>}}**Main Punkt**
 
-Die gläubigen Mormonen aus Zollikofen sind nicht wenige und schon gar nicht die Einzigen. Es gibt nämlich insgesamt 350 verschiedene Standorte der Kirche von Ländern A bis Z weltweit auf allen Kontinenten verbreitet, wobei der Hauptsitz, Church of Jesus Christ of Latter-Day Saints, in Salt Lake City, Utah in den USA ist.  {{</box>}}
+Die gläubigen Mormonen aus Zollikofen sind nicht wenige und schon gar nicht die Einzigen. Es gibt nämlich insgesamt 350 verschiedene Standorte der Kirche von Ländern A bis Z weltweit auf allen Kontinenten, wobei der Hauptsitz der Church of Jesus Christ of Latter-Day Saints in Salt Lake City, Utah in den USA liegt.  {{</box>}}
 
-{{<box>}}Die Kirche Jesu Christi hat laut ihrer Website seit Dezember 2023 über 17 Millionen an Mitgliedern gewonnen 
+{{<box>}}**Grafik**
 
-![Die Zunahme der Mitglieder USA (Quelle:https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints#/media/File:LDS_Church_Membership_1830-2021.png )](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
+Die Kirche Jesu Christi hat laut ihrer Webseite seit Dezember 2023 über 17 Millionen Mitglieder gewonnen 
+
+![Die Zunahme der Mitglieder in denUSA (Quelle:https://en.wikipedia.org/wiki/The_Church_of_Jesus_Christ_of_Latter-day_Saints#/media/File:LDS_Church_Membership_1830-2021.png ) USA](dfd438b8-14c6-41b7-bfb7-c4f6905c39e9.jpg)
 
  {{</box>}}
 
-Mit diesen Worten ist das Interview abgeschlossen. Simon Abplanalp begleitet die Interviewer vor dem Mormonentempel. Zum Schluss bedanken wir uns bei Rocco für die Möglichkeit einer Führung durch das Gemeinde Gebäude. Wir verabschieden uns von ihm und verlassen das Gelände.
+Mit diesen Worten ist das Interview abgeschlossen. Simon Abplanalp begleitet die Interviewer vor den Mormonentempel. Zum Schluss bedanken wir uns bei Herr Abplanalp für die Möglichkeit einer Führung durch das Gemeinde Gebäude. Wir verabschieden uns von ihm und verlassen das Gelände.
 
-Einen Morgen im Mormonischen Gemeindehaus zu verbringen ermöglicht uns, einen Einblick in das Leben eines mormonischen Bischof zu bekommen. Dieses einmalige Ereignis werden wir nicht so schnell vergessen.
+Einen Morgen im mormonischen Gemeindehaus zu verbringen ermöglicht uns, einen Einblick in das Leben eines mormonischen Bischoffs zu bekommen. Dieses einmalige Ereignis werden wir nicht so schnell vergessen.
